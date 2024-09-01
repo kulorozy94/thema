@@ -1,7 +1,7 @@
 # Theme
 JANGAN DIJUAL BELAKAN YE BWANG !!!
-BUTUH LICENSE/PW CHAT TELE GUA
->> t.me/fadhost <<
+BUTUH LICENSE/PW CHAT WA GUA
+>> wa.me/6285731423812 <<
 
 Comand Run Install Thema
 
